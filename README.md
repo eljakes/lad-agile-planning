@@ -1,0 +1,1 @@
+# lad-agile-planning
